@@ -9,6 +9,6 @@ My LinkedIn post:
 https://www.linkedin.com/feed/update/urn:li:activity:7085305090172989440/
 
 Full video presentation:
-
+https://clipchamp.com/watch/gZI8EzQdLjc
 
 
