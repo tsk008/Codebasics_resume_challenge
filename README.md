@@ -4,3 +4,11 @@ which helps us to enhance our data analysis skills by providing insights to the 
 
 Challenge link:
 https://codebasics.io/challenge/codebasics-resume-project-challenge
+
+My LinkedIn post:
+https://www.linkedin.com/feed/update/urn:li:activity:7085305090172989440/
+
+Full video presentation:
+
+
+
